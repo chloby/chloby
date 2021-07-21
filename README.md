@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @chloby
+- 👀 I’m interested in basketball
+- 🌱 I’m currently learning Psychology
